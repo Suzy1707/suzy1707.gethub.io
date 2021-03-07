@@ -1,2 +1,2 @@
-# suzy1707.gethub.io
+Степанян Сюзанна
 Eto ya, Suzy!
